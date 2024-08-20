@@ -14,4 +14,4 @@
 
 Qualquer dúvida entre em contato
 <a href="enzo.movio@escola.pr.gov.br" target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white&quot; target="_blank"> </a>
-![](https://media.tenor.com/3bT2CuCT9IMAAAAi/bruno-berti-sarrada.gif)
+![](https://media.tenor.com/5scjum_BlMMAAAAi/man-face-roblox.gif)
