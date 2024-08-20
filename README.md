@@ -102,3 +102,4 @@ Qualquer dúvida entre em contato
 ![](https://media1.tenor.com/m/ZZGMTHO-BWUAAAAC/davy-jones-gameplayrj.gif)
 ![](https://media1.tenor.com/m/ZZGMTHO-BWUAAAAC/davy-jones-gameplayrj.gif)
 ![](https://media1.tenor.com/m/ZMQeC9TLZikAAAAC/souls.gif)
+![](https://media1.tenor.com/m/E-OGqfD9pyYAAAAd/carthus-sandworm-dark-souls.gif)
