@@ -16,3 +16,6 @@ Qualquer dúvida entre em contato
 <a href=".enzo.movio@escola.pr.gov.br." target="_blank"><img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white&quot; 
 ![](https://media1.tenor.com/m/ZZGMTHO-BWUAAAAC/davy-jones-gameplayrj.gif)
 ![](https://media1.tenor.com/m/ZZGMTHO-BWUAAAAC/davy-jones-gameplayrj.gif)
+![](https://media1.tenor.com/m/ZZGMTHO-BWUAAAAC/davy-jones-gameplayrj.gif)
+![](https://media1.tenor.com/m/ZZGMTHO-BWUAAAAC/davy-jones-gameplayrj.gif)
+![](https://media1.tenor.com/m/ZZGMTHO-BWUAAAAC/davy-jones-gameplayrj.gif)
